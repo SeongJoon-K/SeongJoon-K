@@ -1,5 +1,7 @@
 
-### :seedling: Hi there ! SeongJoon Kim 
+### :seedling: Hi there ! I'm SeongJoon Kim
+
+
 
 ## 
 
