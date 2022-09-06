@@ -1,9 +1,4 @@
 
-### :seedling: Hi there ! I'm SeongJoon Kim
-
-
-
-
 <br>
 
 
